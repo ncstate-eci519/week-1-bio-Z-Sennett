@@ -1,7 +1,7 @@
 # Zach Sennett
 
 ## About Me
-My name is [Zach Sennett](https://www.zachsennett.com) and I am a _teacher_ at [Forest View Elementary School](https://www.forestview.dpsnc.net) in **Durham, NC**. I have been **serving** in a technical support role since _March of 2019_ and I will continue to do so for the rest of this school year. 
+My name is [Zach Sennett](https://www.zachsennett.com) and I am a _teacher_ at [Forest View Elementary School](https://www.dpsnc.net/domain/18) in **Durham, NC**. I have been **serving** in a technical support role since _March of 2019_ and I will continue to do so for the rest of this school year. 
 
 I am married to an **educator** and we have two wonderful and **energetic** children. We recently bought a _Nintendo Switch_ and I am loving playing _Mario Kart_ with my kids.
 
